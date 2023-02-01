@@ -1,2 +1,2 @@
 # MyBio
-It is story about all my life
+This is the story of my whole life
